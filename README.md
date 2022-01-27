@@ -1,1 +1,0 @@
-# stickers-teste-assets
